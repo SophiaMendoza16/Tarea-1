@@ -1,1 +1,5 @@
-# Tarea-1
+Integrantes
+Sophia Mendoza
+Jimmy Juje
+Angie 
+David
